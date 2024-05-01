@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @S-AMK
 - 👀 I’m interested in Research and Development
-- 🌱 I’m currently learning Recent trends Subjects
+- 🌱 I’m currently learning Latest Trends Topics
 - 💞️ I’m looking to collaborate on anything which are useful in future
 - 📫 How to reach me @ alagumuthukrishnan@gmail.com
 - 😄 Pronouns: ...
